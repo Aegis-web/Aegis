@@ -1,0 +1,4 @@
+# Aegis
+
+bismillah
+sedang latihan
